@@ -4,7 +4,7 @@
 
 1. Arroz branco 2 xicaras
 
-2. Cebola em cubos ½ cebola
+2. Cebola em cubos ½ cebo la
 
 3. Alho picado 2 dentes
 
